@@ -7,7 +7,7 @@ I tend to think out of the box. The universe interests me. Time Travel is very p
 I think of our life here on this planet as a rip in the space time continuum.
 A 'glitch'. 
 
-I think chocoloate is at least in the top 3 pleasures of living.
+I think chocoloate is in the top 3 pleasures of living.
 
 Music is the language of the universe. It has to be.
 
